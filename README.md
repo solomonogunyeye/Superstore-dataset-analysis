@@ -59,4 +59,4 @@ TIME PERIOD COVERED: January 2015 - December 2018.
 
 # Key Notes
 1. Shipping days may be negatively influenced.
-2. A September birthday purchase deal should be tested.
+2. A September demographic investigation should be carried out.
